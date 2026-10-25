@@ -52,7 +52,7 @@ BuildUp – Workout Tracker（以下「本アプリ」）は、お客様のプ�
 
 本ポリシーに関するご質問は、以下の連絡先までお願いいたします。
 
-- メール: tsukunda233@gmail.com
+- メール: tsukkunda233@icloud.com
 
 ## 8. 本ポリシーの変更
 
